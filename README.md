@@ -2,7 +2,7 @@
 
 # Hi there, I'm Aaliya! 👋🏽
 
-![@aaliya](https://github.com/Aaliyaomer/Aaliya/)
+![@aaliya](https://github.com/user-attachments/assets/dd30a6ad-88e3-470b-b64f-838fedf56cf5)
 
 
 ## About Me 🚀
